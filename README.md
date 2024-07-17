@@ -1,1 +1,1 @@
-# dindaraa.github.io
+# dindaraa.for-ega.io
